@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔬 Buscando saber mas, nunca es suficiente<br>👨‍👩 Imposible solo, siempre con mi team<br>👨🏻‍💻 Amor a primer codigo<br>❤ Solo acepto 0 como respuesta  
+🔬 Buscando saber mas, nunca es suficiente<br>👨‍👩 Imposible solo, siempre con mi team<br>👨🏻‍💻 Amor a primer codigo<br>❤ No acepto 0 como respuesta  
 
 
 ## 🌐 Socials:
